@@ -1,1 +1,0 @@
-# Penentuan-Kerawanan-Longsor
