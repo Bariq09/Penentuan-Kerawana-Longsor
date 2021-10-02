@@ -1,1 +1,1 @@
-# Penentuan-Kerawana-Longsor
+# Penentuan-Kerawanan-Longsor
